@@ -1,4 +1,4 @@
 # links
 TG LINKS
 
-https://t.me/catizenbot/gameapp?startapp=r_3_1239018
+https://t.me/haMster_kombat_bot/start?startapp=kentId402567744
